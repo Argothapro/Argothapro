@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning many things in computer science
 - 💞️ I’m looking to collaborate on nothing lol
 - 📫 How to reach me : good luck (discord : Argothapro) 
-- 😄 Pronouns: I don't care
+- 😄 Pronouns: any. you can even switch if you feel like it lol
 - ⚡ Fun fact: yes
 
 <!---
